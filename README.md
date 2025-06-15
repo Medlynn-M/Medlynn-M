@@ -1,4 +1,4 @@
-## Hi, I'm Medlynn ✨
+## Hi, I'm Medlynn 😄
 
 🎓 Electrical & Electronics Engineer turned Data Scientist<br/>
 📍 Bangalore, India<br/>
